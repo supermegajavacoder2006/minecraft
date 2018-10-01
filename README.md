@@ -1,5 +1,5 @@
-# minecraft
+# Minecraft
 
-minecraft is a grate game i would get it if i were you
+Minecraft is a great game! I would get it, if I were you.
 
-i have been playing minecraft since many year - first update i play was minecraft 1.6.
+I've been playing Minecraft for many years, the first update I ever played was Minecraft 1.6.
